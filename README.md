@@ -14,6 +14,8 @@
 
 [酷安 @XShee](https://www.coolapk.com/u/20552855) 
 
+[酷安 @MoWei/魔威](https://www.coolapk.com/u/52910914) 
+
 [QQ群组 781222669(原版)](https://jq.qq.com/?_wv=1027&k=Q5aVUglt)
 
 [Telegram Group(原版)](https://t.me/+sjDX1oTk31ZmYjY1)
